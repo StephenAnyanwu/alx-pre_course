@@ -1,1 +1,1 @@
-ALX SE is fun
+ALX SE is fun and time demanding!
